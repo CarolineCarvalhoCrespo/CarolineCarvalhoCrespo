@@ -1,4 +1,4 @@
-## Olá, me chamo Caroline e sou desenvolvedora Front-end!!! 👋
+## Olá, me chamo Caroline e sou estudante de Análise e desenvolvimento de sistemas!!! 👋
 
 
 
